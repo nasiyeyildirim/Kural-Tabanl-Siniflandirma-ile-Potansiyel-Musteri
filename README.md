@@ -1,0 +1,1 @@
+# Kural-Tabanl-Siniflandirma-ile-Potansiyel-Musteri
